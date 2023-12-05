@@ -8,7 +8,6 @@
 
 - A passionate self-taught developer
 - Currently learning Web Development
-- Music, movies and anime ❤️
 
 <br>
 
